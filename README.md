@@ -1,0 +1,1 @@
+# deniz-alt-n-temizle
